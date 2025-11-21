@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lucas-Escrich
-- 📫 How to reach me: lucasescrich2007@gmail.com
+- 📫 How to reach me: lucasescricH97@gmail.com
 -   Pronouns: Lucas
 - ⚡ Fun fact: I am an international ski racer
 
