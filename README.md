@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Lucas-Escrich
-- 👀 I’m locking foir my first job
 - 🌱 I’m currently learning React
 - 💞️ I’m looking to collaborate on in a project that involves front end
 - 📫 How to reach me: lucasescrich2007@gmail.com
